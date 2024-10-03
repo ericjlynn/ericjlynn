@@ -2,7 +2,7 @@
 - 👀 I’m interested in computer science, gaming, football, and track
 - 🌱 I’m currently learning Advance Game Programming in Java
 - 💞️ I’m looking to collaborate on any project that seems interesting
-- 📫 How to reach me Instagram Hoder: ericlynn23
+- 📫 How to reach me Instagram Hoder: ericlynn23 Email: ericjlynn23@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm very interested into things that gives me a challenge
 
